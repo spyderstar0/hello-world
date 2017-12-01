@@ -2,8 +2,8 @@
 Just another repository
 hi fksnakfas
 
-smdhk;;
-gndslknb
+smdk;;
+gndslkn42
 nlkbdsn'
 nklbs
 
